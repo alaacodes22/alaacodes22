@@ -40,7 +40,7 @@
 ---
 
 ## Connect With Me
-- **Email:** https://alaaahmed1939@gmail.com
+- **Email:** alaaahmed1939@gmail.com
 - **LinkedIn:**  
   https://www.linkedin.com/in/a-laa-ebaid
 
